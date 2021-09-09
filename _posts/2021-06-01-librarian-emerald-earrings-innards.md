@@ -5,82 +5,157 @@ author: "Jia"
 tags: Stories
 ---
 
-<img src="https://images.unsplash.com/photo-1608963600486-c2df3ba0597e?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=1050&q=80">
+<img src="https://images.unsplash.com/photo-1628565836616-96eabd510740?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=500&q=80">
 
 Something is calling intermittently outside the window of my apartment. Caw. Caw. Caw. Extrapolating from its husky, throaty crow, the sound should be a raven’s. 
+
 I blink my eyes groggily a few times to let them slowly adjust to the darkness around me. I glance at the digital clock on the bedside table. The red digits glare back at me with an alarming enmity and derision, as if the inorganic being had possessed a life of its own to taunt me of my mediocrity. 5:27 in the morning. Do ravens wake up this early?
+
 My stomach rumbles thunderously. I peer down only to be met with a head of silky ebony hair. How could I have forgotten? I have slept with this woman yesterday, to be more precise, a few good hours ago. Even with only the sliver shaft of light from the street lamp filtering through the blinds, her loose strands of hair entangled with my fingers still glisten lightly. She shifts imperceptibly, nuzzling into my chest. Have I not been so famished, I would have indulged myself in this afterglow – albeit the woman being a mere stranger.
+
 Tentatively, I heave myself from the bed, careful as not to rouse her from her deep slumber. She must be exhausted after countless rounds of love making. I pull the duvet to cover her naked shoulders. Having slipped on yesterday’s trousers and shirt scattered on the sofa, I grab my keys and make my way out to the chilly street. Caw. Caw. The raven greets me in a rather human-like manner. I look to the tree beside my third-floor apartment window. As if knowing my intentions, the creature squawks and flaps its wings.
+
 My stomach grumbles again. I can feel my acerbic gastric juices bubbling, having nothing to dilate; they corrode the walls of my stomach. The tissues, being digested alive ruthlessly, are shrieking hysterically, signaling me to eat something. Raven or crow or whatever bird can wait. I amble down the street headed towards the fast food restaurant near the subway station. 
+
 The waxing crescent hangs forlornly in solitude, high in the firmament. Not a star is in sight. Seventeen years after graduating from primary school and all that is etched in my head is the lunar cycle. The moon is a rock that orbits the planet earth, being earth’s only permanent natural satellite. Does permanence really exist? There are so many promises and dreams sublimate just to reveal the treacherous ground every metaphysical matter is built on. Permanence is subjective. I shake my head to return to the facts about the moon. It has a radius of 1.079 miles and a volume of 0.02 of the earth’s volume. I wonder if the moon is lonely up there, the aura the moon exudes is analogous to the woman’s – the woman I have slept with. The moon awaits her executioner, I concluded pensively. 
+
 This is the first time I have slept with a stranger. Thirty years and I have only dated three women. The woman is a librarian in the library just down a few streets. I see her in the library every weekend and we have exchanged platitudinous pleasantries as she checks out some books for me. Just a platonic relationship between a regular man who reads and a fine librarian, nothing more. I moved into this neighborhood four years ago, perhaps she isn’t a stranger after all. Timing is such a mischievous tyrant when it dallies with our destinies. You can see your perfect soul mate without an ounce of romantic interest for years and the next thing you know is wanting to love her with all the possible ways. And that is exactly what I have encountered with the woman. 
+
 Her name lingers in the twilight zone of the frontal lobes of my brain, eluding me surreptitiously. Nevertheless, I can vividly recall the contours of her body. She certainly does not resound with vivacity and voluptuousness but she has the charm of the magnolia compared to the sensuous rose. Her soft moans when I titillated her breasts and brushed her thighs, how she clung to me tightly when I brought her body to the apex of pleasure our concupiscence could offer, how smooth her skin felt under my fingertips and how her insides clenched lewdly as I thrust into her. And her unwonted disheveled look that bore no semblance with her everyday exquisite diffidence. 
+
 Caw. The horrendous sound relinquishes my reverie – a trance that almost beckoned an erection. This time, the creature reveals itself perched on the street lamp beside me. Its plumage obsidian, glimmering as it is illuminated by the street lamp. It stares at me with its enthralling emerald eyes. The raven undeniably reminds me of something or someone but I can’t name it literally. A feeling of Deja-vu laves over me. There are so many things in this world that go unnamed, so many feelings unable to put into words as if something inflexible and concrete as words would liquidate the fragile nebulous kernel of the emotion. They thus remain amorphous and evanescent, at the same time, they stay eternally. 
+
 My stomach grumbles again, shattering the silence of the street. The raven chuckles, almost humanly. I continue my walk towards my destination. 
+
 “I see you’re hungry.” 
+
 I turn to the bird. Its eyes glint with an innocuous thrill and faint familiar innocence. I am immutably certain the bird talked with a husky voice.
 “Will you have an early breakfast with me? I know a good place. The food’s cheap and good,” pleads the bird. I am amazed at my equanimity when faced with a talking raven. But what harm can a bird do to me? So, I go with the flow. 
+
 “Sure.”
+
 The bird flutters its wings whimsically. “Follow me!” This doesn’t make any sense, but has my life been any sense? I tail the bird tacitly. 
+
 “You know, I took a liking to you when you first moved into the neighborhood four years ago. I was there watching you when you returned to your dark room alone on the first night after your work. You’re a quantitative analyst, aren’t you?” I tread beside the bird and nod quietly. How amusing, a raven that has probably run a background check on me. My privacy is being breached by a bird. God knows maybe it is privy to some things I don’t know about myself too!      
+
 “Why? I’m just a normal man with a mediocre job and no family and nothing else.”
+
 “Everyone may be ordinary but some are definitely not normal. You know, the normal normal. I can tell you’re not normal normal.” The bird peers at me with its knowing viridescent eyes. Silence descends upon us. 
+
 “Tell me about yourself. How should I address you?” We are going to dine together later anyway, all the more reason to get to know a bit more about my dining companion.  
+
 “I’m Muninn. It means memory or mind in old Norse, mind you. Huginn and Muninn fly each day, over the spacious earth. Huginn and Muninn fly… Well, Huginn and Muninn are a pair of ravens that fly all over the world and bring information to Odin. Since Odin is associated with us, he is referred to as the “Raven God” too. He also gave Huginn and me the chords to speak the human tongue, that is why I can speak to you. As you already know, I am the mind and memory; Huginn then means thought. Hmm… Two ravens flew from Odin’s shoulders, Huginn to the hanged and Muninn to the slain. That makes you the slain…Two ravens flew… Huginn to the hanged, Muninn to the slain…” the raven hums nonchalantly.
+
 “I am the slain?” Needless to say, I’m utterly perplexed. 
+
 “Caw. Not physically slain. Caw hek. Caw hek. It’s something else, something inside you you yourself have slain. You are holding on to all that you’ve got but you’re also running away from all you’ve got. You’ve been slain but your soul has not perished, it is still wandering aimlessly.” 
+
 “You mean my soul is not inside me?”
+
 “Caw… There is no place for your soul, in you. You slew him. You’ve driven him out because you wanted to protect him but by protecting him, you’re killing him with your soi-disant kindness. When he dies, you’re then truly slain.”
+
 What am I protecting my soul from? Even I have not the slightest notion but I suppose only I have the key to the answer. Perhaps I know the answer far too well to be able to not know it at all. 
+
 The wind rustles the foliage. The sky is still smeared with austere navy, the colors of the wee hours in the morning. We pace on the deserted alley in the vicinity of the library, heading towards god knows where. 
+
 “It’s fine now, your fylgja is here. You are and will be in good hands,” the bird murmurs. Its eyes a whirlpool of green gem. 
+
 “My fyl…gja?” 
+
 “We’re here,” Muninn announces curtly.
+
 In front of me is a slanted wooden building with white smoke belching out the entrance. Three vermillion paper lanterns with incandescence flickering inside them hung from the wooden awning, illuminating the lively shop. It appears as a pleasant anachronism in this neighborhood. I never knew there is such an antediluvian eatery near the hill just behind the library.
+
 “Shall we?” Muninn perches on my shoulder and I nod. I cast my foot into the entrance and the white vapor gives my cheek a tinge of peaches-and-cream.
+
 The waitress welcomes us amicably, directing us to our seats in front of the bar. The waitress is strangely unfazed by the sight of Muninn on my shoulder. Perhaps she’s seen even stranger things. The waitress is a woman with fair skin and auburn curls, clad in an olive Viking style dress. She reminds me of gentle Medusa. 
+
 “So, this place sells food that heals any pain of yours. You know, brain cancer patients eat brains, lung cancer patients eat lungs…Things like that. You name it, they have it,” Muninn explains. The waitress smiles gorgeously at us, but I sense something else lurking behind those empty eyes.
+
 I scan my surroundings. A man with an eye patch is relishing a bowl of eyeball soup, his cranky fingers trembling as he scoops up an eyeball with a sterling spoon. A liver lies on the plate served in front of an alcoholic prostitute resembles a salmon fillet garnished with wasabi paste. She wails incoherently as she chugs down the beer effortlessly, her sequin dress covering only the necessary parts. I suppose prostitutes have it hard too. To the left, there is even a man slurping intestines from his platter. Colon cancer, I assume. I gulp and shudder.
+
 “Where do they get the entrails?” I ask Muninn. 
+
 “One mashed brain. One ought to refresh one’s mind once in a while. New brain, new knowledge, new memories. Well, never mind the innards. They’re from the hanged Huginn seeks. No vice or sin, only utilization of resources. Now, what do you want to eat?”
+
 “A heart croquette and a Cutty Stark on the rocks. You serve whiskey too, right?” The question seemed inane and pointless. Even I don’t decipher the choice of my food; I was overruled by my instincts. Some things flash across the mind fleetingly, too fast to be grasped and processed. These electrical pulses disguise themselves instincts or notions we are unwilling to acknowledge. 
+
 “Your wish is my command. This shop serves whatever you desire,” the waitress smiles coyly, almost too sweetly. I notice a tattoo on her wrist as she takes down my order on her notepad. An ouroboros circulates her bony wrist. The serpent eats its own tail; an eerie symbol of an infinite cycle, or nature’s endless creation and destruction, life and death. It represents an eternal return, especially in the sense of something constantly recreating itself. I blink. The cook is mincing the brain in the open air kitchen in front of me, an old man with a scar on his jaw and a dragon tiger tattoo on his left bicep. He carries the weight of a veteran who has survived the World War Two. According to Chinese and Japanese folklore, the dragon is the emblem of wisdom and knowledge while the tiger represents power and strength; the tattoo with both elements signifies the perennial struggle of the body and mind. What’s with all these suggestive tattoos?
+
 “Just now you mentioned that I’m safe now because my fylgja is here now… What is a fylgja?”
+
 “In Norse mythology, a fylgja is a spirit who accompanies a person in connection to their fate or fortune. Fylgja usually appears in the form of an animal of a human. It’s an attendant spirit whose well-being is intimately tied to that of its owners. Well, if the fylgja dies, its owner dies too. Fylgja is often depicted as travelling ahead of its owner, arriving at the intended destination before its owner or appearing in the dreams of someone who will meet the owner the following day.”
+
 “Are you a fylgja, Muninn?” I wonder who Munnin’s owner is.
+
 The waitress serves our food promptly. The question lingers in the air, evaporating like the vapor rising from the food.  
+
 Muninn wolves down the mashed brain and I devour my heart croquette. It hums in satisfaction.
+
 “Who are the hanged?”
+
 Muninn licks its beak. “There are men who decide to hang themselves when the latitude of their lives is too high and the oxygen grows thin till they feel so suffocated, no different from how it feels being hanged. They’re inured to the pain but they want to end the pain.”
+
 I chew the bland heart croquette slowly, thinking about the hanged men. Wearing a necklace of rope, the man hangs from the tree, swaying weightlessly as he calls out to more men to wear the necklace of rope side by side with him. 
+
 “How do we pay for the meal?” 
+
 “I believe you are aware that the raven is a mediator between life and death, and I’m associated with lost souls. You will pay with your death……” Muninn’s voice fades into the void. My heart fissures, burning intensely. Excruciating pain engulfs me and I’m plunged into an abyss, detached from the reality around me. My heart hurts as if someone has just dropped a nuclear bomb in my heart. I wince in agony.
+
 There is nothing but emptiness. The emptiness howls ominously, sending chills down my spine but I am anchored to the dark ground. Empty, but unable to fill it. The hollow has an alluring sense of tranquility. I sink deeper into the nothingness. How ironic; unable to call it nothing but unable to deny its existence.
+
 The emptiness sinks its fangs into my flesh and blood oozes out like a perpetual deluge. Memories flood my heart like unsolicited criticism. I’m ten again and my father leaves the room and mother drowning herself in alcohol to submerge her sorrows and my surname changed. Another flash and mother is trading all she has for a stairway to heaven. The women without faces that came and went in my life melt into the void. My university dorm room and my apartment are dark like the emptiness here. The nights that eclipsed as I numbed myself with inebriation. The meaningless sex with my married colleague. The once prosaic memories are now accentuated with an exceptional emotion – pain.
+
 I clench my eyes and suffocation clamps its slimy hand over my mouth. My hysterical shrieks are muffled and my windpipe burns lividly. Warm tears slip from my eye. The brimming emotions fill my heart and pierce my mind. Some unknown power has awakened something in me; as if the final jigsaw piece has been fitted into the puzzle. I gasp for air and open my eyes.
+
 A pair of emerald eyes pierces into my soul.
+
 I’m drenched in perspiration, breathing heavily as I take in my surroundings. Everything around me is still the same. The world moves on; it waits for no one. Some people are immobile but they move along simultaneously as the world moves on. They hold delusions of grandeur but truly they have not moved an inch, so they end up dying on the same spot they are born.
+
 “Okay, he’s paid the bill! Have you received the payment?” Muninn crows to the waitress.
+
 “I did!” The waitress replies merrily, her eyes shimmering with delight.
+
 I’m bewildered. I don’t remember paying anything. All I remember is the overwhelming emotions visceral to me. The emptiness is supplanted by the unknown emotions.
+
 “I paid? With what?”
+
 “Your death. He who comes back is never the same as he who has gone. The old you is dead, and your soul is in you again.”
+
 I keep quiet and we leave the shop. We head towards my apartment. The dawn has chased the darkness away but I can still see the silhouette of the moon. 
+
 “The you who was half-dead was slain,” Muninn whispers. 
+
 “You wanted to protect your soul from negative emotions, but sorrow, disappointment, distress exist on the basis of love, happiness and hope. By denying the misery, you’re also denying the joy and love. You trapped yourself in the content nothingness. That is why you couldn’t let anyone in and everything felt meaningless.”
+
 I turn the corner and stroll towards my apartment.
+
 “Huginn and Muninn fly each day, over the spacious earth. I fear for Huginn, that he come not back, yet more anxious am I for Muninn. Yet more anxious am I for Muninn…” Muninn sings an ode from an unknown place. “It caws and winks at me, then loses itself in the canopy beside my apartment. 
+
 Caw. Caw. 
+
 I fumble for my keys and unlock the door. The woman is still asleep in my bed, the duvet embracing her frail body like a chrysalis. The woman named M. Her black her glimmers under the sunlight, her small emerald earrings glitter demurely on her beautiful earlobe. Caw. Caw. 
+
 I climb into the duvet with just my boxers on. My gaze is fixated on her green earring as I play with strands of her hair. Caw. She snuggles into my chest, tracing invisible circles on my abdomen. Somehow, it has a soothing effect on me. It is 7 am.
+
 “Hmm… You’re awake so early, K,” she moans. I continue to play with her hair, stroking her face gingerly. She has a delicate face.
+
 I bend down to kiss her lips feverishly. I stroke her breast and her waist.
+
 “Can I?” She groans shyly, clinging to my neck. I make love to her again and again. 
+
 “Hey, it somehow feels different, just now, compared to last night’s…” Her voice trails off as I draw invisible triangles on her smooth shoulder.
+
 “How so?”
+
 “It felt like you’re truly there, at that moment, with me.” She caresses my face lovingly. 
+
 “I wasn’t? Last night…”
+
 “I don’t quite understand it myself but I’m glad you’re here now, with me.”
+
 “I’ll always be here and I’ll always be with you…”
+
 “How can you be so sure?”
+
 “Because you found me and we share the same destiny. I’m me and you’re a part of me as I’m a part of you. Our souls met before we did.” I kiss her forehead gently and gaze into her obsidian eyes. At the interminable depths of her ink black pupil, I see an ephemeral glint of emerald green. 
