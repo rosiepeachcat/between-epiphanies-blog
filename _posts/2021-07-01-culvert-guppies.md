@@ -9,7 +9,7 @@ tags: Stories
 
 My fingers stroke the obscured edge of the car seat. I look at the person next to me. His eyes fixated on the road; his mind lost in his own reverie or contemplation on something prickly, I feel it’s the latter. After all, I could sense the subtle rumble of ominous memories in the back of his mind. He has been very quiet since we bumped into his old acquaintances before leaving the restaurant. His jaw clenches tersely as he goes deeper into his own world. K living in the world of K with K’s own way, this thought echoes in my mind as I observe his grip on the steering wheel. 
 
-    Since when have I let my gaze wander from the world beyond the window?
+Since when have I let my gaze wander from the world beyond the window?
 
 My thumb caresses his jaw and he tightens his lips grimly. Breathing a sigh of relief as if he had made up his mind to break the silence, he mutters softly, “something happened between us and I just couldn’t stand the sight of them… It’s not something serious but,” he pauses. “Termites have digested the wood that buttresses our relationship… I don’t have anything to say to them.” I nod. Human relationships are like young trees: lack of one essential factor, the rings in the bark will stultify and parasites will infest clandestinely until one day all that is left is a wilted tree. I ponder on the scurrying existence of the stealthy termites and kiss the back of his hand.
 
