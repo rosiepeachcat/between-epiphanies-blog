@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Nameless Cat"
-author: "Jia"
+author: "Ku"
 tags: Stories
 ---
 

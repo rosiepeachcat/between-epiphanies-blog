@@ -1,18 +1,14 @@
 ---
 layout: post
+author: Ku
 title: About
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
+This 'blog' is a collection of my musings, short stories and essays about art. It started out as an experiment to build a Django blog, but I turned to Jekyll just because it's easier to host the site on Github Pages...  since I already built the blog, then might as well put my writings up there. I hope you'll enjoy reading whatever piques your interest here! Feel free to send me any of your comments--good or bad--[here](https://www.instagram.com/jiasienk/).
 
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
+<img src="https://uploads1.wikiart.org/images/ivan-shishkin/summer-day-trees.jpg!Large.jpg">
 
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
+A little about myself: I love Haruki Murakami's books, but I keep coming back to Ryunosuke Akutagwa's "A Fool's Life". Although I have deep appreciation for Monet's paintings, Ivan Shishkin's paintings still resonate in a seemingly metaphysical way to me. 
 
 
-[jekyll-organization]: https://github.com/jekyll
