@@ -5,7 +5,7 @@ author: "Jia"
 tags: Stories
 ---
 
-<img src="https://images.unsplash.com/photo-1531702923339-1f58c5185402?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=1049&q=80">
+<img src="https://images.unsplash.com/photo-1603652213202-417328c363f2?ixlib=rb-1.2.1&ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&auto=format&fit=crop&w=1051&q=80">
 
 My fingers stroke the obscured edge of the car seat. I look at the person next to me. His eyes fixated on the road; his mind lost in his own reverie or contemplation on something prickly, I feel it’s the latter. After all, I could sense the subtle rumble of ominous memories in the back of his mind. He has been very quiet since we bumped into his old acquaintances before leaving the restaurant. His jaw clenches tersely as he goes deeper into his own world. K living in the world of K with K’s own way, this thought echoes in my mind as I observe his grip on the steering wheel. 
 

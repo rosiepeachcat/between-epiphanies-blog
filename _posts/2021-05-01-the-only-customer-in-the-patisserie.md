@@ -4,7 +4,9 @@ title:  "The Only Customer in the Patisserie"
 author: "Jia"
 tags: Stories
 ---
+
 <img src="https://images.unsplash.com/photo-1628565836616-96eabd510740?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=500&q=80">
+
 
 I’m sure everyone has surely woken up tear-stained for once in their entire life. The moment you open your eyes feels as if you’ve plunged your face into freezing cold water and you wake up groggy from all your previous life. It is as if you’ve just regained consciousness after your anaesthesia has worn off but your body is still benumbed and you’re so nerveless you can’t even lift your finger. Opposite to brain dead, your mind has never been this clear before. Your senses sharpen and suddenly everything becomes so clear to you like the dawn of an oracle.
 
