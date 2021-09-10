@@ -5,8 +5,6 @@ author: "Ku"
 tags: Stories
 ---
 
-<img src="https://images.unsplash.com/photo-1531702923339-1f58c5185402?ixid=MnwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8&ixlib=rb-1.2.1&auto=format&fit=crop&w=1049&q=80">
-
 I’m on my way home after work. I’m drenched, not with perspiration but rain. The sky is ominously dark and grey clouds are patched on the wide sky, obscuring the sun. Everything is under a veil of penumbra.
 
 My footsteps are light on the wet asphalt as I carefully avoid the pools of water. My umbrella is in my shoulder bag but I feel like catching the rain today. Rivulets of raindrops pelt on my clothes. Sometimes, globules of heaven’s tears drip on my bag, sipping into the cloth. The trees are rustling in the wind. Flocks of birds are fluttering their wings and chirping as they flee from the branches.

@@ -8,14 +8,17 @@ The Renaissance era is construed as the “illumination of enlightenment” afte
 
 -
 
-The Avant-Garde of the Antiquity
+**The Avant-Garde of the Antiquity**
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/d/d2/Masaccio%2C_trinit%C3%A0.jpg">
 *Masaccio. The Holy Trinity. 1427. Fresco. 667 x 317 cm. S. Maria Novella, Florence, Italy.*
 
+
 According to Protagoras, man is created after the perfect image of God, so “man can be the measure of all things”. As the significance attributed to humanity and the individual flourished, so did the interest in the accurate depiction of human body. The most archetypal transformation can be observed in attempt to humanize sacred themes and figures. Essentially, the scared figures were brought closer to humanity through the art of depth, perspective and human-representation. For instance, Masaccio’s Holy Trinity holistically encompasses the pioneering application of mathematics to the depiction of space according to Brunelleschi’s linear perspectival scheme along with the emotions imbued in the sacred figures to create an engaging drama in trompe l’oeil. Essentially, the human capabilities redolent of Protagoras’ notion is visually transcribed in the Holy Trinity most evident in the humanisation of God.
 
+
 <img src="https://www.artandobject.com/sites/default/files/styles/gallery_item/public/botticelli-primavera-edited.jpg?itok=WyBNHzwm"> *Sandro Botticelli. Primavera, Allegory of Spring. c. 1478. Tempera on Panel. 203 x 314 cm. Galleria degli Uffizi.*
+
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Sandro_Botticelli_-_La_nascita_di_Venere_-_Google_Art_Project_-_edited.jpg/1200px-Sandro_Botticelli_-_La_nascita_di_Venere_-_Google_Art_Project_-_edited.jpg"> *Sandro Botticelli. The Birth of Venus. ca. 1483. Canvas (tempera; 68 7/8" x 109 7/8"). Florence: Gall., Uffizi.* 
 
@@ -28,19 +31,25 @@ Following the renewed interest of the Medici circle and humanist scholars had in
 
 -
 
-The Promotion of Individual Achievement
+**The Promotion of Individual Achievement**
 
 <img src="https://images.metmuseum.org/CRDImages/cl/original/DP273206.jpg"> *Robert Campin. The Annunciation Triptych. ca. 1425. Oil on wood. 64.5 x 117.8 cm. The Metropolitan Museum of Art.*
 
+
 The development of Renaissance Humanism was profoundly driven by the papal courts and wealthy families such as the Medici family (de facto ruler of Florence). The abundance of paintings, sculpture and architecture infused with Humanist ideas were materialised by private and papal patronage. Primarily, the secularization of the sacred themes could be attributed to the elite families’ commissions. Particularly, artists portrayed living women and men in biblical dramas, sometimes dominating over the sacred figures which subordinates their devotional nature. This practice can be traced as early as Flemish Renaissance in Robert Campin’s Annunciation where its commissioners were painted (similar to Masaccio’s Holy Trinity) in the triptych and the domestic setting for the religious drama. 
+
 
 <img src="https://cdn.britannica.com/10/11510-050-B8F014D3/Birth-of-the-Virgin-Domenico-Ghirlandaio-Santa.jpg"> *Domenico Ghirlandaio. Birth of the Virgin. 1485-90. Fresco. 741 x 450 cm.   Cappella Maggiore, Santa Maria Novella, Florence.*
 
+
 Besides, the dominating presence of the donor’s family and appearance of the women figures made Ghirlandaio’s Birth of the Virgin an example of the secularisation of sacred themes in Renaissance art. (Kleiner, 480) Their generous commissions were mostly for personal gain and display of material affluence which echoes with the Humanist concept of the promotion of individual achievement and recognition that will extend to the artists themselves.
+
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/3/33/Van_Eyck_-_Arnolfini_Portrait.jpg">  *Jan van Eyck. Portrait of Giovanni Arnolfini and his Wife. 1434. Oil on Oak. 82.2 x 60 cm. The National Gallery, London.*
 
+
 Subsequently, the artists’ consciousness of their contributions to the Renaissance culture also manifested as their embedded self-portraits and signature in Renaissance paintings. For instance, Jan van Eyck was the first Flemish painter to sign his paintings—first revealed in his Arnolfini Portrait—which will be practiced by other Renaissance painters. Furthermore, embedded self-portraits pervaded Renaissance paintings but are most distinctive in Rogier van der Weyden’s Saint Luke Drawing the Virgin (himself as Saint Luke) and Botticelli’s Adoration of the Magi (full-length portraiture) because they implied the significance and self-conviction of the artists’ status at that time. 
+
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/9/9e/Saint_Luke_Drawing_the_Virgin_MFA_Boston.jpg"> *Rogier van der Weyden. Saint Luke Drawing the Virgin. about 1435-40. Oil and tempera on panel. 137.5 x 110.8 cm.*
 
@@ -60,7 +69,7 @@ Succinctly, the concept of Humanism is intricately intertwined with Renaissance 
 
 -
 
-Bibliography:
+*Bibliography*:
 
 Gardner's Art Through the Ages: The Western Perspective; Volume 1, 14th Edition (Online
 
