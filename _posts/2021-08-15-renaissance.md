@@ -59,6 +59,7 @@ Succinctly, the concept of Humanism is intricately intertwined with Renaissance 
 
 
 -
+
 Bibliography:
 
 Gardner's Art Through the Ages: The Western Perspective; Volume 1, 14th Edition (Online
