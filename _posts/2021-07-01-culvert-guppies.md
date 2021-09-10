@@ -20,15 +20,22 @@ I point to a spot under a canopy and we both sit down side by side tacitly. Ants
 “It’s okay…,” I placate as his eyes search for mine. 
 
 Spring is passing
+
 The birds cry and the fishes fill
+
 With tears in their eyes
 
 Tears they crystallise
+
 Eyes glazed with ostentatious elan
+
 Shed and fell—autumn leaves
 
+
 On the white poppy
+
 a butterfly’s torn wing
+
 is a keepsake
 
 
@@ -41,11 +48,15 @@ is a keepsake
 “Guppies!” K announces spiritly. Amazed, I grin silently and inch closer to look at the guppies swimming untrammelled in the mossy culvert, ignorant of our innocuous intrusion. 
 
 A swish of tail fins
+
 Psychedelic scales glimmering chastely
+
 Down into the dark
 
 Water trickles down the stream
+
 Guppies swimming against the current
+
 Life moves on
 
 Struggling against the current that sways them into an interminable loop of perpetual saline, the guppies swim strenuously to survive. Aren’t we just like the guppies living in that seemingly inhospitable and enigmatic culvert?

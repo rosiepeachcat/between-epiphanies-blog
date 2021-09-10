@@ -57,7 +57,7 @@ I nod my head in agreement.
 “I didn’t make it…They caught me from behind and bound my hands and legs. They were standing looming over me, staring at me with their identical faces. I was so petrified my tears kept pouring out. Then, they demanded me to work for them until my last breath and that my face would gradually mutilate and become the same as theirs. I kept screaming and when they discovered I had no skills whatsoever, they adjured me to do the dishwashing. I didn’t want that… I didn’t want to clean the dishes for the rest of my life wearing the same visage like them. I wanted to keep my face. When they freed me to let me change into their uniform, I mustered all my energy and ran to the door. I bit and kicked the hands that were trying to hold me back. I just kept running.”
 Y looks up and meets my eye.
 
-“I made it… I made it to the streets and I ran back home like a madding girl. I couldn’t bring my legs to stop and never once did I look back to that place.” She smiles wearily, fuddling her fingers.
+“I made it… I made it to the streets and I ran back home like some crazy person. I couldn’t bring my legs to stop and never once did I look back to that place.” She smiles wearily, fuddling her fingers.
 
 “I went to the district last week, partly because I wanted to check that shop out. But the thing is, it was gone. The shop had completely vanished and it became a dark alley. More like it was an alley, there wasn’t any shop to begin with. I thought it was just an illusion so I went to see it again on the next day. But it’s not there.”
 
