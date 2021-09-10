@@ -13,7 +13,8 @@ Monet’s interest in Japanese art and culture intensified as his career progres
 
 Moreover, it can also be seen in his obsession with waterlilies which he further pointed that the waterlilies paintings5 are, in fact, “object of contemplation”. Since his garden in Giverny was partly conceived in emulation of Japanese exemplar and was planted with lotus, he must be aware of their rich Buddhist symbolism—enlightenment.
 
-<img src="https://lh4.ggpht.com/78DC1cvcYuYKVHd75cip4gJFFRiPcJ_WojCrD06hj1DFmsJMn2w1e8AgKGH2RQ=s1200"> *Claude Monet. The Waterlilies: Green reflections, overall view; room 1, east wall. 1914-1926. Oil on Canvas. 200 x 850 cm, 2 panels each 200 x 425 cm. Musée de l'Orangerie.| One of the 8 mural-size painting installed in the Musée de l'Orangerie*
+<img src="https://lh4.ggpht.com/78DC1cvcYuYKVHd75cip4gJFFRiPcJ_WojCrD06hj1DFmsJMn2w1e8AgKGH2RQ=s1200"> *Claude Monet. The Waterlilies: Green reflections, overall view; room 1, east wall 1914-1926. Oil on Canvas. 200 x 850 cm, 2 panels each 200 x 425 cm. Musée de l'Orangerie.*
+
 
 Even in the mural-size Nymphaea series Monet created for the Orangerie Museum, he wanted to “offer (an) asylum of peaceful meditation in the centre of flowering aquarium”. 
 
