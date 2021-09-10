@@ -11,7 +11,7 @@ This 'blog' is a collection of my musings, short stories and essays about art. I
 
 A little about myself:
 
-I love Haruki Murakami's books, but I keep coming back to Ryunosuke Akutagwa's "A Fool's Life". Although I have deep appreciation for Monet's paintings, Ivan Shishkin's paintings still resonate in a seemingly metaphysical way to me. 
+I love Haruki Murakami's books, but I keep going back to Ryunosuke Akutagwa's "A Fool's Life". Although I have deep appreciation for Monet's paintings, Ivan Shishkin's paintings still resonate in a seemingly metaphysical way to me. 
 
 I love to write on my free time but most days, I just wish I was a cat; no work, no school, just meow meow.
 

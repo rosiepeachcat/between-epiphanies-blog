@@ -55,4 +55,18 @@ Under the doctrines of Humanism, the status of the artist had increased exponent
 
 <img src="https://mymodernmet.com/wp/wp-content/uploads/2018/08/school-of-athens-raphael-thumbnail.jpg"> *Raphael Sanzio. School of Athens (Philosophy). 1509. fresco, 500 x 770 cm. Stanza della Segnatura (library of the Pope, Julius II), Palazzo Vaticano, Rome.* 
 
-Succinctly, the concept of Humanism is intricately intertwined with Renaissance paintings. If any, the paragon of humanism in the Renaissance art will be Raphael Sanzio’s School of Athens (Philosophy) (fig.13). With the marvellous execution of perspective schemes and naturalistic figures of contemporary individuals embodying ancient philosophers, the astounding fresco not only serve as an encapsulation of the humanistic zeitgeist but also the impact of Humanism on the evolution of human thinking and art.
+Succinctly, the concept of Humanism is intricately intertwined with Renaissance paintings. If any, the paragon of humanism in the Renaissance art will be Raphael Sanzio’s School of Athens (Philosophy). With the marvellous execution of perspective schemes and naturalistic figures of contemporary individuals embodying ancient philosophers, the astounding fresco not only serve as an encapsulation of the humanistic zeitgeist but also the impact of Humanism on the evolution of human thinking and art.
+
+
+-
+Bibliography:
+
+Gardner's Art Through the Ages: The Western Perspective; Volume 1, 14th Edition (Online
+
+Access Included).” ProtoView, vol. 1, no. 30, 2014, pp. ProtoView, Vol.1(30)
+
+Huntsman, Penny, and Association of Art Historians, issuing body. Thinking about Art: A Thematic Guide to Art History. Wiley Blackwell/AAH, 2016.
+
+Symonds, John Addington, and Alfred Pearson. A Short History of the Renaissance in Italy. Cooper Square Publishers, Inc., 1966.
+
+Vasari, et al. The Lives of the Artists. Oxford University Press, 1991.
