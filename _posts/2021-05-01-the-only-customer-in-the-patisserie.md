@@ -40,7 +40,7 @@ We go to the cafe by foot. It’s a cloudy and windy day so there’s no scorchi
 
 “You don’t understand, like it or not, we are all flying a plane…”
 
-“Ah! I’ll let you off the hook for now. I don’t care. This is on you.”
+“I’ll let you off the hook for now. I don’t care. This is on you,” Y chirps as we enter the patisserie.
 
 We order our cakes at the counter. Y is fidgety and tensed, averting her eyes from the cashier. She is having a slice of strawberry cake and I order a piece of cheesecake.
 
@@ -48,13 +48,14 @@ We order our cakes at the counter. Y is fidgety and tensed, averting her eyes fr
 
 “It all depends on what you mean by weird.”
 
-“There’s something I’ve not told anyone but it’s been bothering me a lot lately. I need to confide in someone and I think I can and I want to tell you about it. Is it okay?” She has a troubled expression on her face.
+“There’s something I’ve never told anyone but it’s been bothering me a lot lately. I need to confide in someone and I think I can and I want to tell you about it. Is it okay?” She has a troubled expression on her face.
 
-I nod my head in agreement.
+I nod my head.
 
-“There was a time I went to a café after school. You were reading in the library so I went alone. The shop was just in the next district and it was decorated lavishly with lace and floral prints. The pastries on the window display were so delicate and I just dashed into the shop without hesitation. I was so absorbed in the prospect of eating these dulcet delicacies my eyes were riveted to the pastries in the glass fridge and the menu on the table. The shop was deserted but I didn’t really think it was strange. So, when I was going to place my order at the cashier, I noticed something really weird. The male cashier and the waitresses had the same androgynous face! I…I thought I was in a delusion but it was real. I panicked… Of course I’d be aghast. When I came back to my senses, I darted to the door. I didn’t know what I was afraid of but I just knew I had to get out of that place,” Y pauses and drinks and a mouthful of water.
+“There was a time I went to a café after school. You were reading in the library so I went alone. The shop was just in the next district and it was decorated lavishly with lace and floral prints. The pastries on the window display were so delicate and I just dashed into the shop without hesitation. I was so absorbed in the prospect of eating these dulcet delicacies my eyes were riveted to the pastries in the glass fridge and the menu on the table. The shop was deserted but I didn’t really think it was strange. So, when I was going to place my order at the cashier, I noticed something really weird. The male cashier and the waitresses had the same androgynous face! I…I thought I was in a delusion but it was real. I panicked… Of course I’d be terrified. When I came back to my senses, I darted to the door. I didn’t know what I was afraid of but I just knew I had to get out of that place,” Y pauses and drinks and a mouthful of water.
 
 “I didn’t make it…They caught me from behind and bound my hands and legs. They were standing looming over me, staring at me with their identical faces. I was so petrified my tears kept pouring out. Then, they demanded me to work for them until my last breath and that my face would gradually mutilate and become the same as theirs. I kept screaming and when they discovered I had no skills whatsoever, they adjured me to do the dishwashing. I didn’t want that… I didn’t want to clean the dishes for the rest of my life wearing the same visage like them. I wanted to keep my face. When they freed me to let me change into their uniform, I mustered all my energy and ran to the door. I bit and kicked the hands that were trying to hold me back. I just kept running.”
+
 Y looks up and meets my eye.
 
 “I made it… I made it to the streets and I ran back home like some crazy person. I couldn’t bring my legs to stop and never once did I look back to that place.” She smiles wearily, fuddling her fingers.
@@ -71,8 +72,8 @@ Y looks up and meets my eye.
 
 Y looks bewildered at my response and whispers gratefully, “Thank you for believing me, X. Yes…I made it out.”
 
-We part way at the junction in front of our neighbourhood. Y lives a street down my house.
+We part ways at the junction in front of our neighbourhood. Y lives a street down my house.
 
-“You can always call me if you want to go to a café again. I can read another time.”
+“You can always call me if you want to go to a café again.”
 
 Y nods, smiling all the way. 
