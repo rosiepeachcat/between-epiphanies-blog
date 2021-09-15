@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Monet’s Own 'Floating World'"
+title:  "Impressionism III: Monet’s Own 'Floating World'"
 author: "Ku"
 tags: Art
 ---

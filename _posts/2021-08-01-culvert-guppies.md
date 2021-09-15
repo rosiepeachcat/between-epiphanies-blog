@@ -17,29 +17,9 @@ I point to a spot under a canopy and we both sit down side by side tacitly. Ants
 
 “It’s okay…,” I placate as his eyes search for mine. 
 
-Spring is passing
+“I used to sit here and let the waves carry me to some halcyon place. The verisimilitude of the sea calms my mind but like the sea, the depth of the heart is tenebrous. But being here with you now feels different,” K pauses in a daze and blurts out a beautiful analogy, “like a dragonfly has finally landed on that wispy blade of grass.” I whisper in delight, “but the first fallen snow is barely enough to bend the jonquil leaves.” We laugh lightly and look at the sea in front of us. 
 
-The birds cry and the fishes fill
-
-With tears in their eyes
-
-Tears they crystallise
-
-Eyes glazed with ostentatious elan
-
-Shed and fell—autumn leaves
-
-
-On the white poppy
-
-a butterfly’s torn wing
-
-is a keepsake
-
-
-“I used to sit here and let the waves carry me to some halcyon place. The verisimilitude of the sea calms my mind but like the sea, the depth of the heart is tenebrous. But being here with you now feels different,” K pauses in a daze and blurts out a beautiful analogy, “like a dragonfly has finally landed on that wispy blade of grass.” I moan in delight, “but the first fallen snow is barely enough to bend the jonquil leaves.” We laugh lightly and he pecks my forehead gingerly. 
-
-“N?” K heaves himself up from the rocks and offers me his hand. Gladly accepting his hand, we meander through the stairs adroitly chiselled from the rocks to the lower shore adorned with an untarnished beach. There is a culvert on our left. A perpetual streamlet of rivulets dribbles towards the vast sea. The brook flows tranquilly as we stand on the shore where the clear meets the tangy. We stand there, letting the chilly spring water sooth our sore feet.
+“N?” K heaves himself up from the rocks and offers me his hand. Gladly accepting his hand, we meander through the stairs adroitly chiselled from the rocks to the beach beneath. There is a culvert on our left. The stream flows tranquilly as we stand on the shore where the clear meets the tangy. We stand there, letting the chilly water sooth our sore feet.
 
 “Look,” K beckons me with a little merry wave as his eyes wander fleetingly to the culvert. Taking in one last look of the desultory flat horizon devoid of any curvature from my myopic perspective, I amble towards the culvert. 
 
@@ -50,6 +30,7 @@ A swish of tail fins
 Psychedelic scales glimmering chastely
 
 Down into the dark
+
 
 Water trickles down the stream
 
